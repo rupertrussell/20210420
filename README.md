@@ -1,3 +1,5 @@
+Artwork on Redbubble at: https://www.redbubble.com/shop/ap/76757685?ref=studio-promote
+
 # 20210420
 Mandelbrot
 Created using Ultrafractal 6
